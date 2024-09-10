@@ -8,3 +8,5 @@
 - chinese food recipe
 - korean food recipe
 - Thai Food
+
+- trump
