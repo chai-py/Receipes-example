@@ -13,7 +13,7 @@ Biden
 
 Biden Tower
 
-come come come
+come come
 
 Banana
 apple
