@@ -13,9 +13,4 @@ Biden
 
 Biden Tower
 
-<<<<<<< HEAD
 come come come
-=======
-
-go go go
->>>>>>> 3ddada095a3eba536776e7c02b8bda645b373287
