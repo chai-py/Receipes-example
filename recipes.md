@@ -7,13 +7,13 @@
 - mexican food recipe
 - chinese food recipe
 - korean food recipe
-- Thai Food
+- Thai Food recipe
 
 Biden
 
-Biden Tower
+Biden Tower is hge
 
-come come come
+come come
 
 Banana
 apple
